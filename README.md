@@ -1,5 +1,5 @@
 
-![홍익병원](https://github.com/user-attachments/assets/1ee58802-b425-4b10-b4d3-c8b1ce3c085b)
+![홍익병원1](https://github.com/user-attachments/assets/592fce8e-47e3-4339-afb8-bb6fb97dc1ed)
 
 
 
